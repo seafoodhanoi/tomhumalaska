@@ -8,7 +8,7 @@
 
 <p><span style="color:#000000">với <strong>giá cả rẻ</strong>, chất lượng lý tưởng buộc phải chúng được nhập cảng và kinh doanh vô cùng chạy đây Việt Nam. Bên cạnh đó vẫn mang những ca cẩm từ thực khách về việc bị chém giá hoặc tậu bắt buộc tôm hùm Alaska kém chất lượng, tôm hùm Alaska kém chất lượng và giả, bị chết hoặc thiếu chân, thiếu càng.</span></p>
 
-<p><img alt="Tôm hùm alaska ở Hà Nội tươi ngon số 1" class="size-full wp-image-3024" src="https://haisanhuubo.com/wp-content/uploads/2019/11/tom-hum-alaska-nam-dinh-ngon.jpg" style="height:687px; width:1024px" /></p>
+<a href="https://haisanhuubo.com/tom-hum-alaska-o-ha-noi/"><img alt="Tôm hùm alaska ở Hà Nội tươi ngon số 1" class="size-full wp-image-3024" src="https://haisanhuubo.com/wp-content/uploads/2019/11/tom-hum-alaska-nam-dinh-ngon.jpg" style="height:687px; width:1024px" /></a>
 
 <h3><span style="color:#00ccff; font-size:16pt">tôm hùm Alaska đó Hà Nội với giá bao nhiêu?</span></h3>
 
@@ -36,4 +36,4 @@
 
 <p><span style="color:#000000">mang sự nhiều và phong phú về ẩm thực của dân tộc tôi và đặc trưng là thực khách ở Hà Nội, mang đa số món ăn được chế biến từ tôm rồng Alaska đã được sáng tạo và nêm nếm để phù hợp mang khẩu vị của thực khách. Những món điển hình bạn buộc phải thử như<strong> tôm rồng nướng, tôm rồng hấp sả, tôm hùm hấp bia, gỏi tôm rồng, súp tôm rồng,...</strong> ngoài ra cũng sở hữu những món ăn lạ mồm như <strong>sashimi tôm rồng, cháo tôm hùm, hoặc đặc trưng hơn là món tiết canh tôm rồng.</strong></span></p>
 
-<p><span style="color:#000000">trường hợp bạn đang đây tỉnh thành Vinh hay bất kì nơi nào của Hà Nội hãy ghẹ ngay tới hải sản Hữu Bộ để trải nghiệm hải sản lý tưởng tại nơi ở.</span></p>
+<p><span style="color:#000000">trường hợp bạn đang đây tỉnh thành Vinh hay bất kì nơi nào của Hà Nội hãy ghẹ ngay tới hải sản Hữu Bộ để trải nghiệm hải sản lý tưởng tại nơi ở.</span></p> <a ahref="https://haisanhuubo.com/"><p>www.haisanhuubo.com</p></a>
